@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @C0deSavvy
-- 👀 I’m interested in socing and programming
+- 👀 I’m interested in coding and programming
 - 🌱 I’m currently learning most of the programing languages
 - 💞️ I’m looking to collaborate on project which i can learn new things.
 - 📫 How to reach me ...
